@@ -1,0 +1,1 @@
+# leninmapako_GoogleCloudPractiseTest
